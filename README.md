@@ -8,6 +8,6 @@
 
 智卓星网
 
-智卓星网地址；zhiyun66.github.io
+智卓星网地址；https://zhiyun66.github.io
 
  QQ交流群号 ； 463032683
